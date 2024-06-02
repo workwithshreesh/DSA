@@ -80,7 +80,7 @@ If you have suggestions for new questions or improvements to existing solutions,
 
 ## Contact
 
-If you have any questions or feedback, feel free to contact me at [your-email@example.com](mailto:your-shreesht366@gmail.com).
+If you have any questions or feedback, feel free to contact me at [Shreesh Tiwari](mailto:your-shreesht366@gmail.com).
 
 
 ---
